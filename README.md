@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @andrienad
 - 👀 I’m interested in 3D-Printing & Robotics
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on - Geez. Wait until I gain more experience (Current Level 1)
+- 🌱 I’m currently learning: too little things :( but will get to sth 
+- 💞️ I’m looking to collaborate on - Geez. Wait until I gain more experience (Current Level 1 > 1.1)
 - 📫 You can reach me at Twitter: @andrine_ad or Email: asbinandrien.blogger@gmail.com
 
 <!---
